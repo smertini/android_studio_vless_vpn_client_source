@@ -16,4 +16,4 @@ Features
 You can also test it absolutely free and see for yourself
 
 I also provide assistance in publishing applications on Google Play.
-Telegram: @Tonyfill to purchase a project
+❗Telegram: @Tonyfill to purchase a project 💵
