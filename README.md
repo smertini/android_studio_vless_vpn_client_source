@@ -14,6 +14,7 @@ Features
 - Add configuration from Deeplink
   
 You can also test it absolutely free and see for yourself
-
+➡️Telegram VPN BOT: @XVPNchat_bot
 I also provide assistance in publishing applications on Google Play.
-❗Telegram: @Tonyfill to purchase a project 💵
+‼️Telegram: @Tonyfill to purchase a project💵
+
